@@ -15,6 +15,8 @@ In my everyday life I use computers to design effects. Also, direct the players 
 # October 10, 2024
 I researched Veterinarian, they provide care for aniamls and examines them. Skills needed as a veternarians is communication skills,compassion,and decision-making.A bacherlor's degree is needed to become a  veternarian.Opportunities for growth or advancement are a zoologist,shelter medicine,Equine Medicine and vet tech.Computers helps vets deliver better patient results.
 
+# October 21, 2024
+AI helps with launguage and image translation and a negative impact is that  AI is leading to lower wages.
 
 
 
