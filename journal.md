@@ -19,7 +19,7 @@ I researched Veterinarian, they provide care for aniamls and examines them. Skil
 AI helps with launguage and image translation and a negative impact is that  AI is leading to lower wages.
 
 # October 28, 2024
-Technology is import for voting  because it's used to improve the voting process. Also, haivng voting on technology makes everyone's lives easier in this case. But, a concern people may have is hackers. Hackers couls manipulate voting and have thw rong kind if info spread.
+Technology is important for voting  because it's used to improve the voting process. Also, having voting on technology makes everyone's lives easier in this case. But, a concern people may have is hackers. Hackers could manipulate voting and have the wrong kind of info spread.
 
 
 
