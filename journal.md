@@ -21,6 +21,9 @@ AI helps with launguage and image translation and a negative impact is that  AI 
 # October 28, 2024
 Technology is important for voting  because it's used to improve the voting process. Also, having voting on technology makes everyone's lives easier in this case. But, a concern people may have is hackers. Hackers could manipulate voting and have the wrong kind of info spread.
 
+# November 4, 2024
+It's important to protect personal info on the internet because it can lead to the wrong perosn and that would lead to fraud. Ways to secure your information is to use passwords nobody knows an d make them strong. Ways to handle your private info being shared online is to  keep your private information to yourself  and not share it . Make different kind of account as a business one  and have a private personal one.
+
 
 
 
