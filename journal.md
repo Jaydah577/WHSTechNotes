@@ -23,6 +23,8 @@ Technology is important for voting  because it's used to improve the voting proc
 
 # November 4, 2024
 It's important to protect personal info on the internet because it can lead to the wrong perosn and that would lead to fraud. Ways to secure your information is to use passwords nobody knows an d make them strong. Ways to handle your private info being shared online is to  keep your private information to yourself  and not share it . Make different kind of account as a business one  and have a private personal one.
+# November 19, 2024
+Technology has changed  by giving people easier ways to shop , by allowing people to get groceries . Negative impacts are taht there is a decreased advantage for actually people make a living without the jobs of the technology.
 
 
 
