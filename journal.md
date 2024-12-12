@@ -23,9 +23,12 @@ Technology is important for voting  because it's used to improve the voting proc
 
 # November 4, 2024
 It's important to protect personal info on the internet because it can lead to the wrong perosn and that would lead to fraud. Ways to secure your information is to use passwords nobody knows an d make them strong. Ways to handle your private info being shared online is to  keep your private information to yourself  and not share it . Make different kind of account as a business one  and have a private personal one.
-# November 19, 2024
+# November 18, 2024
 Technology has changed  by giving people easier ways to shop , by allowing people to get groceries . Negative impacts are taht there is a decreased advantage for actually people make a living without the jobs of the technology.
-
+# December 2, 2024
+Self- driving cars have sensors  and cameras to see surroundings.These kinds of cars can potentially help reduce accidents. These cars are exciting by giving people a way to get around without having to do anything. Thses cars can carry me and a injured animal I could find on the road.If there is a wreck and the car is driving itself , who should the blame go to ?
+# December 9, 2024
+what brainrot means to is negative work in a person's head. I think social media has both negative and positive affects on people because the posistive side is that it gives people information that can help in the real world. The negative part is it take away people's focus.Yes , limits can be given
 
 
 
