@@ -28,7 +28,9 @@ Technology has changed  by giving people easier ways to shop , by allowing peopl
 # December 2, 2024
 Self- driving cars have sensors  and cameras to see surroundings.These kinds of cars can potentially help reduce accidents. These cars are exciting by giving people a way to get around without having to do anything. Thses cars can carry me and a injured animal I could find on the road.If there is a wreck and the car is driving itself , who should the blame go to ?
 # December 9, 2024
-what brainrot means to is negative work in a person's head. I think social media has both negative and positive affects on people because the posistive side is that it gives people information that can help in the real world. The negative part is it take away people's focus.Yes , limits can be given
+what brainrot means to is negative work in a person's head. I think social media has both negative and positive affects on people because the posistive side is that it gives people information that can help in the real world. The negative part is it take away people's focus.Yes , limits can be given.
+# December 16, 2024
+I definitely looking forward to winter break.
 
 
 
