@@ -31,8 +31,9 @@ Self- driving cars have sensors  and cameras to see surroundings.These kinds of 
 what brainrot means to is negative work in a person's head. I think social media has both negative and positive affects on people because the posistive side is that it gives people information that can help in the real world. The negative part is it take away people's focus.Yes , limits can be given.
 # December 16, 2024
 I definitely looking forward to winter break.
-
-
+# January 8, 2025
+ The thing I enjoyed most is playing with the cars and pyhton.
+Some topics I would like to work on is learning coding more things.A certification is the python series we are doing would be cool. Repeating all the needed codes from completing python would help prepare me for my achievement.
 
 
 
