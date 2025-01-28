@@ -39,6 +39,14 @@ Some topics I would like to work on is learning coding more things.A certificati
  The government intervention has to do with privacy concerns. Also, limits what servers can offer to users.Tiktok inputs stronger privacy walls.They give the option to have privacy settings on. They limit the askings of private information.
  A feature I would add is not having to ask or have the location or numbers on the app.This is because this would help protect users info in a better manner. A lesson i can take from this is to not let out any un-needed information to any sites.That would prtect all the importants.
 
+# January 22, 2025
+Name	Car	Mistake
+Jimmy	Honda Civic	Drilled Hole In Gas Tank
+Kayla	GMC Sierra	Fixed Wrong Problem
+Bart	Toyota Corolla	Left Stains On Carpet
+Harrison	Subaru Forester	Left The Oil Cap Off
+
+
 
 
 
