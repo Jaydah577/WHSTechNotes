@@ -46,7 +46,8 @@ Kayla	GMC Sierra	Fixed Wrong Problem
 Bart	Toyota Corolla	Left Stains On Carpet
 Harrison	Subaru Forester	Left The Oil Cap Off
 
-
+# Febuary 18, 2025
+The most interesting thing I learned last week was when i was researching  sloths , sloths are good at swimming . I found this interesting because I like learning about primates.
 
 
 
