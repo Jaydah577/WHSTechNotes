@@ -49,7 +49,9 @@ Harrison	Subaru Forester	Left The Oil Cap Off
 # Febuary 18, 2025
 The most interesting thing I learned last week was when i was researching  sloths , sloths are good at swimming . I found this interesting because I like learning about primates.
 
-
+# March 17, 2025
+The types of technology i used the most were my tv and my cellphone. I used netflix. I also used instagram over the break. 
+This technology entertained me by making me laugh. It also entertained me by curing my boredom. I also played word search to sharpens to brain skills and help me relax.
 
 
 
