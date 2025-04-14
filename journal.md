@@ -53,8 +53,8 @@ The most interesting thing I learned last week was when i was researching  sloth
 The types of technology i used the most were my tv and my cellphone. I used netflix. I also used instagram over the break. 
 This technology entertained me by making me laugh. It also entertained me by curing my boredom. I also played word search to sharpens to brain skills and help me relax.
 
-
-
+# April 14, 2025
+I believe phone bans are both benefical and detrimental.But the ban can also cause problems. Students having their phones taken could be disruptive with sharing their opinion loudly. ALthough the policies wouldnt be students' favorite thing fored on them. It would help stduents focus on work instead of their cell phones. If this policy was implemented in my school, I would be upset. This is because schools have been get threats and if we dnt have our cellphones,how would we contact our parents?
 
 
 
