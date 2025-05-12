@@ -56,6 +56,10 @@ This technology entertained me by making me laugh. It also entertained me by cur
 # April 14, 2025
 I believe phone bans are both benefical and detrimental.But the ban can also cause problems. Students having their phones taken could be disruptive with sharing their opinion loudly. ALthough the policies wouldnt be students' favorite thing fored on them. It would help stduents focus on work instead of their cell phones. If this policy was implemented in my school, I would be upset. This is because schools have been get threats and if we dnt have our cellphones,how would we contact our parents?
 
+# May 5, 2025
+I don't believe the 100 people will win against the silverback gorilla.A grown sliverback gorilla can weigh up to 2 times larger tyan the average human's weight.Their strength is 10 times stronger than an average human. The gorilla has natural weapons , such as sharp canines. Having sharp canines gives the the gorillas a better advantage.This matters because people tend to underestimate the power of a wild animal.Many trends tend to spread misinformation and desensitive audiences to the true nature of the creature and the it's behavior.
+People promoting violence or encouraging dangerous acts can be misunderstood.It teaches people that animals are just obstacles to be overcome, rather than respected.The entertainmentonline can make readers and watchers not think about the eduction of the creatures. Most watvhers can't tell the real or fake online , so they may began to think  dangerous and false ideas.
+
 
 
 
